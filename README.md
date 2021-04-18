@@ -1,2 +1,2 @@
 # bio-it115
-A place to store my bio information. 
+My name is Alexa Barreto Portal. 
