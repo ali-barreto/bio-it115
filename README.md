@@ -1,4 +1,7 @@
-About
+-About-
+
+(https://user-images.githubusercontent.com/82463579/115367519-20e72280-a17b-11eb-8198-59a5fd8638e0.jpg)
+
 
 Hello! 
 You have entered to a mini-time dimension about Alexa Barreto Portal!
